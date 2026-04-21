@@ -39,4 +39,4 @@ Open an issue or hit me up on LinkedIn if you prefer.
 **"We Pass Them Left, Then Watch the Industry Blink."**  
 
 — Shannon Goddard  
-Founder, Loyal9 LLC | Adelanto, CA
+Founder, Loyal9 LLC | Riverside, CA

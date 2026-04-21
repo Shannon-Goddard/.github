@@ -46,4 +46,4 @@ Project maintainers who do not follow or enforce the Code of Conduct in good fai
 **"We Pass Them Left, Then Watch the Industry Blink."**
 
 — Shannon Goddard  
-Founder, Loyal9 LLC | Adelanto, CA
+Founder, Loyal9 LLC | Riverside, CA

@@ -33,4 +33,4 @@ Even $5/month helps cover servers, AI experiments, domain costs, and the next ro
 **"We Pass Them Left, Then Watch the Industry Blink."**
 
 — Shannon Goddard  
-Founder, Loyal9 LLC | Adelanto, CA
+Founder, Loyal9 LLC | Riverside, CA

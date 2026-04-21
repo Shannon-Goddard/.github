@@ -30,4 +30,4 @@ If you prefer not to open a public issue:
 
 **"We Pass Them Left, Then Watch the Industry Blink."**
 — Shannon Goddard  
-Founder, [Loyal9 LLC](https://github.com/Shannon-Goddard) | Adelanto, CA
+Founder, [Loyal9 LLC](https://github.com/Shannon-Goddard) | Riverside, CA
